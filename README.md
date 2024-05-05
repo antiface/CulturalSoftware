@@ -9,6 +9,7 @@
 * SEE ALSO: Cubism, Dada, Surrealism, Abstract Expressionism, Pop Art, etc., understood through the lens of The Metaphysics of Art Movements (more on this later);
 * The "fictional" science of Historiomics which studies the "Human Historiome";
 * There has never been a day without art, not even a moment when there simply were no artists working on some sort of art piece.  Movements are merely a kind of mental, spiritual software to help us understand art.  Artists are the best vulgarizers of the work that they do, understanding intuitively with great force, the intricacies of their vocation.  Artists are the biggest popularizers and populists.  They are also those that are recognized the least for what they bring to the world;
+* __Cultural Software__ as I envision it, can run various Religions, Artistic Movements, Political Movements; it can run Philosophy itself, or particular Philosophies or Philosophical Movements; it can run various Doctrines within Religions; it can basically run ANY *__Cultural System or Subsystem__*; *more on this later*;
 * [...]
 
 - - - - - - - - -
