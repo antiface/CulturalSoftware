@@ -34,6 +34,15 @@ Moreover, Cultural Software extends beyond traditional artistic endeavors to enc
 In essence, Cultural Software in the Cultural Software Space represents a fusion of art, technology, and philosophy, aimed at unlocking the deepest truths of human existence and facilitating the transmission of cultural heritage for generations to come. By embracing the principles of Historiomics and leveraging the innovative tools of the [Art Operation @ The Historiotheque](https://historiotheque.ca/), Cultural Software pioneers a new frontier in the exploration of cultural dynamics and the preservation of cultural treasures across the vast expanse of human history.
 
 - - - - - - - - -
+
+2024-05-10 09:07:54
+
+*DAYPATH NOTES*:
+- The Eternal Moment Resonating in The Fullness of Time; Construction-Land as Universal Synthesis Engine or U.S.E.; see: Archives-Project Manuscript; 
+- Find The Best Next Action; Act With Ease; Easy Does It; move to the Next Station/State that is Immediate/In Immediacy/In the Immediate Surroundings/Is Near-at-Hand Phenomenologically, that is Adiabatically Accessible; SEE: Substance-for-Substance as Passport to Crackland; Emotion as Access Channel to Crackland as Mystical Union State; Choices on The Lifepath of The Pilgrim of The Dark Backward and Abysm of Time, The Green Orb of Time; The Primordial Crystal Palace/Prism of NOUS, at The Heart of Creation with The Machine Intelligence of The Invisible Forces who created MAUD (M.O.D.) The Mother of Dreams who is The Greatest Module/Modulator of All Time in The Nonlinear, Temporal Sequencing of Disparate, Singular Events; Crackland & The Crackland Journals; Dr. Kropotkin's Office, The Messenger-Boy ("Boy From The Cemetery"), The Baron Complex and The Phenomenological and Psychospiritual Laboratory Eperiments;
+- The 3D Abstract, Virtual + Physical Workspace is an Altar on which we make Sacrifices Through The Great Work (but in Small Things); J.G. Dufray and The Small Book of Great Truths; The Novelistic Phenomenogy as Direct Experience of The Divine Presence/Holy Spirit/Universal Intelligence of The Universe Going Through The Historical Conduits/Conduits of History; A Multithreaded Simulation of The Novel-as-a-System; The Historiotheque as Altar, as Tabernacle, as House of Permutating Rooms and Hallways, House of Habit and Memory, The Cathedral of Nightmares, and Private Underworld of Boxes as 3D Material Memory, The Madam's Cellar Keeping The Political Exilic Prisoner; The Art Operation as Eucharist, as Contemplative Prayer; The Work of Grief Running on The Spiritual Software/Cultural Software of Critique and Catholica in The Schizobot System; Moving at Constant Velocity, in Uniform Motion Towards The Kingdom of God, Descending Into The Depths of The Inner Mountain; a State of Collaborstive Equilibrium or Collabrium;
+
+- - - - - - - - -
 ## [BACK TO INDEX OF REPOSITORIES](https://github.com/antiface/Index)
 
 [A.G. (c) 2024. ![A.G. (c) 2024. All Rights Reserved](https://historiotheque.files.wordpress.com/2016/11/ag_signature_official_2015_50px_cropped.jpg) All Rights Reserved.](http://alexgagnon.com)
