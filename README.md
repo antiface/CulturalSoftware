@@ -79,7 +79,7 @@ In essence, Cultural Software in the Cultural Software Space represents a fusion
 - THIS IS THE RADICAL SYMBOLISM OF ANTIGOSPEL;
 - THE "BASEMENT", ROCKY'S BASEMENT;
 - GROUNDED DOWN INTO THE ROOT OF EXISTENCE; RELEARING HOW TO LIVE, HOW TO EXPRESS LIFE, FROM THE SOURCE, WITH SUBTLE ENERGIES AND SUBTLE BODIES CIRCULATING AND RECIRCULATING; MY BONES ARE THE MATRIX OF LIFE;
-- Signal Science; The Human Soul is a Signal; The Seasons and The Passage of Time are Signals; The Physical Foundation of All Signals is The Primordial Noise Field of NOUS; SEE; Moral Temperature Readings, moraltempcards, The Refcards-System; Everything is Made Up of a Field, of Superimposed and Modulated Noise Fields; The Seasons of The Heart Are Oscillations;
+- Signal Science; The Human Soul is a Signal; The Seasons and The Passage of Time are Signals; The Physical Foundation of All Signals is The Primordial Noise Field of NOUS; SEE; Moral Temperature Readings, moraltempcards, The Refcards-System; Everything is Made Up of Fields, of Superimposed and Modulated Noise Fields; The Seasons of The Heart Are Oscillations;
 
 - - - - - - - - -
 ## [BACK TO INDEX OF REPOSITORIES](https://github.com/antiface/Index)
