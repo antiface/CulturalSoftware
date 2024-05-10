@@ -57,6 +57,28 @@ In essence, Cultural Software in the Cultural Software Space represents a fusion
 - RADIANT WINTER PARADISE; HOT WINTER BLOOM; COLD SUMMER OF DOGS; END OF SPRING; THESE ARE ALL MORAL TEMPERATURE READINGS; THE ARTIST’S MIND IS A MORAL TEMPERATURE "HYPERVISOR" OF THE "HYPERREAL" QUALITIES OF TIME" / THE "SEASONS OF THE HEART"; THERE ARE AN INFINITE NUMBER OF SEASONS BECAUSE TIME IS CONTINUOUS, OPERATE ON A CONTINUUM;
 - NOUS: "the eyes of the heart", the "noetic faculty"; "still while moving";
 - Pilgrim of Solitude; The "Seasons of The Heart" Novella Series; "The Heart Alone"; "The Heart is of Resolve"; "The Heart's Purpose if To Love"; "The Heart Alone Knows Peace"; "The Heart Loves Stillness and Solitude"; "Keep Guard Over Your Heart"; "The Heart Knows Nothing of Blindness"; "The Heart Pierces Through The Depths"; "Purity of Heart is To Will One Thing"; "The Heart Has Only One Reason"; "A Divided Heart is a Heart of Stone"; "The Heart Gallops (Like a Stagecoach)"; "The Heart Has Gives Chariots of Love"; "Patience is of The Heart"; "The Heart is Bold"; "Prayer Quiets a Turbulent Heart"; "The Heart Remains a Great Mystery";
+- General Concept of Tonal Center in Ambient Spaces/Local Atmospheres (and "Modes" such as "City-Modes" in "City-Of Templates" in "Cartography of Abstract Landscapes"; Index-Reference Resonance and Photo-Captures, in subjective experients too, as also in all artifacts as refcards/moraltempcards/moral temperature readings in generalized/formalized, systematic ogging/documentation practice; specific mentions of "Noisemapping" using audio sensors/portable audio recording devices to make field recordings on Field Art, the (Ancient, Sacred) Art of Atmospheres;
+- "I will speak more about this soon, but for now, some recent PhotoCaptures, which will help make the point about a new concept of “Index-Reference Resonsance”, a non-linear experiential form of resonance, similar to a kind of Morphic Resonance (Ref. Rupert Sheldrake)";
+- Speak of Art Production of Cultural Artifacts as Documentary Evidence of Axiology of First Witness (Testimony) of Truth; Experience as Crucible or Tabernacle; see; Inner and Outer Historiotheque;
+- The Body as Temple, Historiotheque; Historiomics as Epigenetics of Population Histories and the Elaboration and "Sequencing" of the Historiome, as exemplified in The Painter's Almanach and one of its Expressions, The Seasons of The Heart Project as well as The Refcards-System;
+- The Tonal Center as Virtual Equilibrium Point;
+- The Tonal Center as Based On Lower "Infrasound" Frequency Waves;
+- "Seasons of The Heart"; "There is a time for everything, and a season for every activity under the heavens." (Ecclesiastes);
+- Boundary turbulence between day-tight containers, between states; interface growth;
+- Environmental scanning for weak signals of emergent properties/phenomena;
+- BURIED ALIVE IN THE TOMB OF MY HEART; THE GHASTLY CRYPT OF MY SOUL; I REJOICE IN A FUNERARY PROCESSION DEEP DOWN INTO MY INTERNAL CEMETERY OR CHARNEL GROUND;
+- I AM BURIED DEEP IN THE EARTHY CAVERN, IMMORTAL, AND I RISE OUT TO JOIN THE OTHER LIVING BEINGS ON THE SURFACE WHO ARE MORTAL; RISING FROM THE GRAVE GIVES MORTAL LIFE AND RETURNING INTO THE EARTH GIVES BACK THE IMMORTAL LIFE YOU HAD WHEN YOU INHABITED THE EARTH, THE NAVEL OF THE WORLD, FROM THE PRIMORDIAL NOTHINGNESS, BEFORE YOU WERE BORN, BEFORE YOUR SURFACED AND GAVE US HJMAN ANIMALS MORTAL LIFE;
+- IT'S A MOUNTAIN RAISING UPWARDS FROM IMMORTALITY TO MORTALITY, THEN GOING BACK DOWN INTO THE INNER MOUNTAIN INTO IMMORTALITY AND IMMORTAL LIFE AGAIN, AS YOU WERE IN THE BEGJNNING;
+- I BECOME MY OWN IMMORTAL, LUMINOUS SPIRITUAL BODY WHEN I GO DOWN INTO THE INNER MOUNTAIN, FROM WHICH I WAS BORN INTO MORTAL LIFE; THE CREATOR IS IN THE DEPTHS OF MY SOUL; THE SEIGNEURIE OF GOD IS INSIDE MY HEART, HIS DARK BLACK KINGDOM OF DOOM;
+- I'M FREE-FALLING INTO ETERNAL SLUMBER, BURIED BENEATH THE MOUNTAIN, IN A MYSTICAL AVALANCHE;
+- I CAN SEE HOW LIFE CAME FROM THE DEPTHS, AS I RETURN TO WHENCE I CAME INTO MORTALITY AS THE MAN I ALWAYS AM;
+- WE BREAK BONES TO DRINK THE SINEWS - SWEET SUCCOR! - AND BURY THE REMAINS DEEP IN THE CAVERN, TO GIVE BIRTH TO MORTAL LIFE;
+- SLEEP IS DEATH, DYING TO ONESELF;
+- I AM BURNED ALIVE BY THE INNER FLAME OF TRANQUILITY AND REST, SOLID AS THE MOUNTAIN IS SOLID;
+- MY EMBERS CREATE THE LIFE IN MY BONES; FROM DEATH COMES LIFE; FROM BURIED, BROKEN BONES COMES ALL THE ANIMALS, ALL THE SPIRITS AND THE SPIRITUAL LIFE;
+- THIS IS THE RADICAL SYMBOLISM OF ANTIGOSPEL;
+- THE "BASEMENT", ROCKY'S BASEMENT;
+- GROUNDED DOWN INTO THE ROOT OF EXISTENCE; RELEARING HOW TO LIVE, HOW TO EXPRESS LIFE, FROM THE SOURCE, WITH SUBTLE ENERGIES AND SUBTLE BODIES CIRCULATING AND RECIRCULATING; MY BONES ARE THE MATRIX OF LIFE;
 
 - - - - - - - - -
 ## [BACK TO INDEX OF REPOSITORIES](https://github.com/antiface/Index)
