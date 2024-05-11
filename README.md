@@ -81,6 +81,13 @@ In essence, Cultural Software in the Cultural Software Space represents a fusion
 - GROUNDED DOWN INTO THE ROOT OF EXISTENCE; RELEARING HOW TO LIVE, HOW TO EXPRESS LIFE, FROM THE SOURCE, WITH SUBTLE ENERGIES AND SUBTLE BODIES CIRCULATING AND RECIRCULATING; MY BONES ARE THE MATRIX OF LIFE;
 - Signal Science; The Human Soul is a Signal; The Seasons and The Passage of Time are Signals; The Physical Foundation of All Signals is The Primordial Noise Field of NOUS; SEE; Moral Temperature Readings, moraltempcards, The Refcards-System; Everything is Made Up of Fields, of Superimposed and Modulated Noise Fields; The Seasons of The Heart Are Oscillations;
 
+- - - - - - - - - -
+
+2024-05-11 03:57:26
+
+DAYPATH NOTES:
+- My Musical Compositions Now Are Machine Intelligences Projected Onto The Abstract Theater or Landscape/Space/Milieu of my Gut (Heart); emotional tonalities; the inner life is binary, good vs. bad, pleasurable vs. painful, positive vs. negative, beautiful vs. ugly, true vs. false; Transition/Interval/Contact vs. Conscience/Value/Motive; desirable vs. undesirable, agreeable vs. disagreeable; Survival of any process, including life, is binary, i.e. either you live /"continue" or die/"terminate"; calendrical and time-reckoning systems were likely some of the very first actual systems prehistoric humans built; they also built Work-Systems; my Work-System ("ALX") is s Creative Work-System;  temporal processes and algorithms, life is an example, is a Historionic Process; so are Cracks and Fissures; Crackland, The Land of Fussures is in my Heart and Soul; There were many levels to Crackland & The Crackland Journals: The Dream Assembly, St-Elsewhere, Crackland, the City-Of Templates, Montreal or St-Petersburg, The House of Habit and Memory or Cathedral of Nightmares, the Room such as the Dr.'s Office, and then objects/items/atomic units/historiotypes such as Boxes or Projectors, Books, Files, etc.; Now the novelistic phenomenogy is a multithreaded simulation of the novel-as-system;
+
 - - - - - - - - -
 ## [BACK TO INDEX OF REPOSITORIES](https://github.com/antiface/Index)
 
